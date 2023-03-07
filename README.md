@@ -14,4 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![dino](https://user-images.githubusercontent.com/100942011/223440846-2fcdbb9e-a6fd-4360-86d3-d305906b2fe0.gif)
+![dino](https://user-images.githubusercontent.com/100942011/223442660-42a49a2a-8f52-41ab-9a7a-131157d6302d.gif)
+
+
+Run, Run, Run. This is not a game. You will run for everything.
